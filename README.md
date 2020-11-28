@@ -5,5 +5,5 @@ Made by: Kartikey Garg
 
 Disclaimer:
 
-I am not responsible for the iilegal uses of the product, this is made for eductional purposes only
-so don't blame me if you get caught using this 
+I am not responsible for the illegal uses of the product, this is made for educational purposes only 
+so don't blame me if you get caught using this
